@@ -10,8 +10,8 @@
 Ba
 PUB      
 R6:Siege                        
-Fortnite    
-Easy Anti-cheat 
+Fortnite     
+Easy Anti-cheat
  
 Apex
 Ru
