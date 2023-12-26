@@ -9,11 +9,11 @@
 ## Work in games -       
 Bat
 PUB        
-R6:Siege                     
+R6:Siege                      
 Fortnite   
 Easy Anti-cheat 
 
-Apex 
+Apex
 Ru
 SCUM
 Dead by Daylight
