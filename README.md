@@ -8,11 +8,11 @@
         
 ## Work in games -            
 PU
-R6:Siege                           
+R6:Siege                            
 Fortnit   
 Easy Anti-    
   
-R 
+R
 SCUM  
 Dead by Dayligh   
 Enlisted  
