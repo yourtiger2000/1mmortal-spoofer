@@ -9,10 +9,10 @@
 ## Work in games -           
 PUB    
 R6:Siege                           
-Fortnit
+Fortnit 
 Easy Anti-ch
   
-R  
+R 
 SCUM  
 Dead by Dayligh  
 Enlisted  
