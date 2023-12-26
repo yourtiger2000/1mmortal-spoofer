@@ -9,8 +9,8 @@
 ## Work in games -              
 PUB      
 R6:Siege                        
-Fortnite
-Easy Anti-chea 
+Fortnit
+Easy Anti-chea  
 A 
 R  
 SCUM  
