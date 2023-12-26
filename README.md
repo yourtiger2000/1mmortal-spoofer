@@ -9,9 +9,9 @@
 ## Work in games -        
 
 PUB      
-R6:Siege                       
+R6:Siege                        
 Fortnite    
-Easy Anti-cheat 
+Easy Anti-cheat
   
 Ape
 Ru 
