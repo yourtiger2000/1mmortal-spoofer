@@ -8,11 +8,11 @@
    
 ## Work in games -       
 Bat
-PUB           
+PUB          
 R6:Siege                
 A
 Fortnite   
-Easy Anti-cheat
+Easy Anti-cheat 
 
 Apex 
 Ru
