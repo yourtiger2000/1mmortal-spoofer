@@ -8,8 +8,8 @@
       
 ## Work in games -             
 PUB      
-R6:Siege                        
-Fortnit 
+R6:Siege                         
+Fortnit
 Easy Anti-chea 
 A
 R   
