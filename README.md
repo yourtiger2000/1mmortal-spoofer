@@ -11,10 +11,10 @@ PUB
 R6:Siege                          
 Fortnite     
 Easy Anti-chea
-Ap
+Ap 
 Ru 
 SCUM  
-Dead by Daylight
+Dead by Dayligh
 Enlisted
 Fortnite
 
