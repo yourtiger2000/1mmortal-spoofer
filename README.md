@@ -8,12 +8,12 @@
    
 ## Work in games -      
 Bat  
-PUB       
+PUB        
 R6:Siege               
 Ar
 Fortnite    
 Easy Anti-cheat
- 
+
 Apex 
 Rus
 SCUM
