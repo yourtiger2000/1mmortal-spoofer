@@ -10,8 +10,8 @@
 Bat 
 PUB       
 R6:Siege                
-A
-Fortnite     
+A 
+Fortnite    
 Easy Anti-cheat
 
 Apex 
