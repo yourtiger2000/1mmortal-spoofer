@@ -8,10 +8,10 @@
 
 ## Work in games - 
 BattleEye: 
- 
+
 PUBG
 EFT
-DayZ
+DayZ 
 R6:Siege
 Unturned
 Arma 3
