@@ -9,11 +9,11 @@
 ## Work in games -             
 PUB      
 R6:Siege                        
-Fortnite  
+Fortnite 
 Easy Anti-chea 
 Ap  
 R 
-SCUM  
+SCUM   
 Dead by Dayligh
 Enlisted
 Fortnite
