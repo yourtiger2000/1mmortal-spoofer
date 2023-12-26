@@ -7,12 +7,12 @@
 ![immortal_322_hM574sNMraQMiMRaGnmZ](https://gitub.c om/NIcecz/hwid-spoofer/assets/117065400/4422591c-9ecd-40df-89b2-4832d266cbe9)
  
 ## Work in games -    
-Bat   
+Bat  
 PUB        
 R6:Siege           
 Ar 
 Fortnite   
-Easy Anti-cheat: 
+Easy Anti-cheat:  
   
 Apex 
 Rus
