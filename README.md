@@ -11,9 +11,9 @@ PU
 R6:Siege                            
 Fortnit   
 Easy Anti-    
-  
+ 
 R
-SCUM  
+SCUM   
 Dead by Dayligh   
 Enlisted  
 Fortnite
