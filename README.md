@@ -10,8 +10,8 @@
 PUB  
 R6:Siege                           
 Fortnit   
-Easy Anti-ch
-  
+Easy Anti-c
+   
 R 
 SCUM  
 Dead by Dayligh  
