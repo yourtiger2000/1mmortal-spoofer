@@ -10,12 +10,12 @@
 PUB    
 R6:Siege                           
 Fortnit
-Easy Anti-chea
+Easy Anti-che
 
 R   
 SCUM  
 Dead by Dayligh  
-Enlisted 
+Enlisted  
 Fortnite
 
 
