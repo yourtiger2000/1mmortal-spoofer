@@ -5,13 +5,13 @@
 ## Showcase
  
 ![immortal_322_hM574sNMraQMiMRaGnmZ](https://gitub.c om/NIecz/hwid-spof/assts/117065400/4422591c-9ecd-40df-89b2-4832d266cbe9)
-   
+  
 ## Work in games -      
 Ba 
 PUB       
 R6:Siege                        
 Fortnite    
-Easy Anti-cheat
+Easy Anti-cheat 
  
 Apex
 Ru
