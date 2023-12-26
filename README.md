@@ -9,11 +9,11 @@
 ## Work in games -            
 PU   
 R6:Siege                          
-Fortnit   
+Fortnit    
 Easy Anti-    
  
 
-SCUM   
+SCUM  
 Dead by Dayligh   
 Enlisted  
 Fortnite
