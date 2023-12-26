@@ -11,11 +11,11 @@ Bat
 PUB         
 R6:Siege             
 Arm
-Fortnite  
+Fortnite   
 Easy Anti-cheat: 
  
 Apex
-Rust
+Rus
 SCUM
 Dead by Daylight
 Enlisted
