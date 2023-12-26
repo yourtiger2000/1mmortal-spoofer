@@ -8,14 +8,14 @@
    
 ## Work in games -      
 Ba
-PUB      
+PUB     
 R6:Siege                         
 Fortnite    
 Easy Anti-cheat 
  
 Apex
 Ru 
-SCUM
+SCUM 
 Dead by Daylight
 Enlisted
 Fortnite
