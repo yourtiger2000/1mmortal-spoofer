@@ -9,9 +9,9 @@
 ## Work in games -            
 PUB     
 R6:Siege                        
-Fortnite    
+Fortnite     
 Easy Anti-chea 
-Ap   
+Ap  
 Ru
 SCUM  
 Dead by Dayligh
