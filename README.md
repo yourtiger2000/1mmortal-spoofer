@@ -9,8 +9,8 @@
 ## Work in games -
 BattleEye 
 PUB
-EF  
-DayZ
+EF   
+Day
 R6:Siege   
 Unturned
 Arma 3
