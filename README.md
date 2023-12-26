@@ -9,8 +9,8 @@
 ## Work in games -           
 PUB 
 R6:Siege                          
-Fortnit    
-Easy Anti-
+Fortnit   
+Easy Anti- 
    
 R  
 SCUM  
