@@ -10,8 +10,7 @@
 PUB    
 R6:Siege                          
 Fortnite     
-Easy Anti-chea 
-
+Easy Anti-chea  
 Ap
 Ru  
 SCUM  
