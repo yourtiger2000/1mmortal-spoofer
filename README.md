@@ -10,9 +10,9 @@
 Bat 
 PUB     
 R6:Siege             
-Ar  
+Ar   
 Fortnite    
-Easy Anti-cheat: 
+Easy Anti-cheat:
   
 Apex 
 Rus
