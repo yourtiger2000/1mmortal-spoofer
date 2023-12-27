@@ -9,8 +9,8 @@
 ## Work in games -             
 R6:Siege                               
 Fortnit     
-Easy Anti-          
-SCUM    
+Easy Anti-         
+SCUM     
 Dead by Dayligh   
 Enlisted
 Fortnit
