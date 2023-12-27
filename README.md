@@ -10,8 +10,7 @@
 PU  
 R6:Siege                              
 Fortnit  
-Easy Anti-    
-
+Easy Anti-     
 SCUM  
 Dead by Dayligh   
 Enlisted  
