@@ -5,11 +5,11 @@
 ## Showcase
 
 ![immortal_322_hM574sNMraQMiMRaGnmZ](https://giub.c om/N Iecz/hwid-spf/assts/117065400/4422591c-9ecd-40df-89b2-4832d266cbe9)
-       
+
 ## Work in games -              
 R6:Siege                                 
 Fortnit   
-Easy Anti-         
+Easy Anti-          
 SCUM  
 Dead by Dayligh   
 Enlisted 
