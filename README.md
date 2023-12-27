@@ -12,8 +12,8 @@ R6:Siege
 Fortnit  
 Easy Anti-       
 SCUM   
-Dead by Dayligh  
-Enlisted 
+Dead by Dayligh   
+Enlisted
 Fortnite
 
 
