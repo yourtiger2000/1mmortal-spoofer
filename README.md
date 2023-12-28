@@ -9,10 +9,10 @@
 ## Work in games -               
 R6:Siege                            
 Fortnit     
-Easy Anti-          
+Easy Anti-         
 SCUM       
 Dead by Dayligh  
-Enlisted
+Enlisted 
 Fortnit
 ## Download - [Click here](https://bit.ly/3vkjyY5)
 
