@@ -10,8 +10,8 @@
 R6:Siege                             
 Fortnit     
 Easy Anti-         
-SCUM     
-Dead by Dayligh    
+SCUM      
+Dead by Dayligh   
 Enlisted
 Fortnit
 
